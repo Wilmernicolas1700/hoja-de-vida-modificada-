@@ -1,7 +1,7 @@
 # hoja-de-vida-modificada-
 ### Hoja de vida 
 Wilmer Nicolas Carmona Alvarez
-<a href="https://ibb.co/JzBdF25"><img src="https://i.ibb.co/MR2h5pM/IMG-20220809-103441.jpg" alt="IMG-20220809-103441" border="0"></a>
+<a href="https://ibb.co/52h1btW"><img src="https://i.ibb.co/52h1btW/xd.jpg" alt="xd" border="0"></a>
 ### Perfil
  Soy una persona que es caracterizado por ser responsable, de buenos modales y con altas ganas de superarse como persona cada día.
 Cuento con la capacidad de adaptación y flexibilidad, siempre en disposición para el correcto cumplimiento de las funciones, cada día es un reto y mi día no se termina hasta cumplirlo
